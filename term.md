@@ -6,7 +6,7 @@
 
 XU-AI Publisher is a personal, non-commercial tool operated by an individual
 developer ("I", "me"). It publishes videos I create to my own TikTok account,
-[@handle]. It is not offered to the public.
+@catsintheattic08. It is not offered to the public.
 
 Contact: xu.aivideos@gmail.com
 
